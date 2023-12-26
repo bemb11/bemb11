@@ -1,4 +1,5 @@
-- 👋 Hi, I’m Bea! @bemb11
+Check me in January ** Je suis en train de faire une mise à jour de mon profil avec des nouveaux projets **  
+-  👋 Hi, I’m Bea! @bemb11
 - 👀 I’m interested in Big data, Artificial Intelligence, Blockchain, Quantum Physics 
 - 🌱 I’m currently learning Machine Learning 
 - 💞️ I’m looking to collaborate on EVERYTHING! 
