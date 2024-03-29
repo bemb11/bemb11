@@ -1,4 +1,4 @@
-Check me in January ** Je suis en train de faire une mise à jour de mon profil avec des nouveaux projets **  
+Check me in May ** Je suis en train de faire une mise à jour de mon profil avec des nouveaux projets **  
 -  👋 Hi, I’m Bea! @bemb11
 - 👀 I’m interested in Big data, Artificial Intelligence, Blockchain, Quantum Physics 
 - 🌱 I’m currently working but still a lot to learn 
